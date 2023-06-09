@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dovillee
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning QAAAA, nothing to see here.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on entry/junior level QA tasks.
 - 📫 How to reach me - DONT
 
 <!---
