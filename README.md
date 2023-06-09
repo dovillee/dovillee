@@ -1,3 +1,4 @@
+nereik cia lia lia 
 - kvieciu kavos prie kavos aparato, virtuveleje. Statau! ;)
 - 👀 I’m interested in cats and cars ✨
 5€ for kiss darling 
