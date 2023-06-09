@@ -1,7 +1,9 @@
 - 👋 Hi, I’m @dovillee
 - 👀 I’m interested in cats and cars ✨
+5€ for kiss darling 
+
 isduriau :) 
-🌱KA 👋 TU 💞️CIA📫DIRBI✨
+
 - 💞️ I’m looking to collaborate on entry/junior level QA tasks.
 - 📫 How to reach me - DONT
 
